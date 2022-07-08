@@ -1,6 +1,6 @@
 ### hi
 
-i'm Jana ('Jay-nuh')
+I'm Jana ('Jay-nuh')
 
 - 🧸 I'm a student studying Computer Science at the University of Maryland, College Park
 - 🎀 Pronouns: she/they (really any it doesn't matter to me)
