@@ -1,6 +1,6 @@
 ### hi
 
-I'm Jana ('Jay-nuh'). I use she/they pronouns. 
+I'm Jana ('Jay-nuh').
 
 - 🧸 I'm a student studying Computer Science at the University of Maryland, College Park
 - 🎀 I use she/they pronouns. 
